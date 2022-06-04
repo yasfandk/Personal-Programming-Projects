@@ -7,4 +7,4 @@ Having studied Economics for over six years (undergraduate and master's), I have
 | Contact Method |  |
 | --- | --- |
 | Professional Email | yasfandk@gmail.com |
-| LinkedIn | https://www.linkedin.com/in/ddagunos/ |
+| LinkedIn | https://www.linkedin.com/in/yasfandk/ |
